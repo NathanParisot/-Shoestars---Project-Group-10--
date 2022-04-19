@@ -1,1 +1,1 @@
-# -Shoestars---Project-Group-10--
+# Shoestars-Project-Group-10
